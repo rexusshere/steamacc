@@ -1,2 +1,20 @@
-# steamacc
-account generator
+asdskadlsa
+asdakldsla
+asdklakdls
+askldakldsa
+aksldaklda
+aksldaklsd
+asdklaklsd
+aksdlakdls
+31
+32
+4
+3
+4
+3
+7
+63
+5
+4
+56
+5
